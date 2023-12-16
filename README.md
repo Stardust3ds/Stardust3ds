@@ -1,0 +1,3 @@
+- Hello there! I’m @Stardust3ds. I'll be using this as a sort of Social Media Platform, to note my Mods, Code, Art, etc.
+- 👀 I’m interested in Learning Code, Art, Music, Copyright Laws, all of which I aim to use for Game Design!
+- 📫 How to reach me: My social media's don't exist yet. Simply Talk to me Here!
